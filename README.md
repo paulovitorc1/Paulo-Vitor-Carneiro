@@ -20,9 +20,11 @@
 
 ![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/56e4ec41-cdd2-44f4-a663-e013341a57b8)
 
-![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/789937e7-bd5a-483a-98bb-e707a5118f0c)
+![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/933f0ed3-cbfe-4aef-935e-7e8849d0f986)
 
 ![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/0cc521df-2036-48b3-ab00-296ac19b5553)
+
+![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/789937e7-bd5a-483a-98bb-e707a5118f0c)
 
 ![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/3203bd29-ed42-4e4d-97c8-e83b096e6f1a)
 
