@@ -22,6 +22,8 @@
 
 ![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/933f0ed3-cbfe-4aef-935e-7e8849d0f986)
 
+![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/720a58d5-eccf-43fb-adf3-9885033744d0)
+
 ![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/0cc521df-2036-48b3-ab00-296ac19b5553)
 
 ![image](https://github.com/paulovitorc1/Paulo-Vitor-Carneiro/assets/96089877/789937e7-bd5a-483a-98bb-e707a5118f0c)
